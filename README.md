@@ -2,5 +2,4 @@
 
 Salam dariku
 
-Shiieda di sini
-Aku seorang pelajar
+Shiieda di sini,aku seorang pelajar
